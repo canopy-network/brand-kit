@@ -1,1 +1,1 @@
-# BRAND KIT
+Canopy Brand Guidelines and Media Kit.
